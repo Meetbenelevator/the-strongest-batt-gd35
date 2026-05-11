@@ -1,4 +1,4 @@
-#  
+#  Experience pull lucky blocks like never before with automatic pull lucky blocks Scripts, the #1 Script. Includes infinite resources and undetectable
 
 
 
